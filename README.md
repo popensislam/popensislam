@@ -7,6 +7,8 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/islam-zhenishov-933b65239](https://www.linkedin.com/in/islam-zhenishov-933b65239)
 
+- CV https://disk.yandex.ru/i/PCrdEkf63h-BoA
+
 - ⚡ Fun fact **I think I am funny and friendly**
 
 <h3 align="left">Languages and Tools:</h3>
